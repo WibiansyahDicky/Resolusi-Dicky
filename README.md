@@ -1,3 +1,4 @@
 # Resolusi-Dicky
 Hidup sehat,
-Bisa masak
+bisa masak,
+berbakti sama orang tua
