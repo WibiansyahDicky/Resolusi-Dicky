@@ -1,3 +1,3 @@
 # Resolusi-Dicky
-Hidup sehat
+Hidup sehat,
 Bisa masak
